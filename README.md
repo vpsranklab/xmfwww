@@ -1,5 +1,11 @@
 # 小蜜蜂机场 - 官方网站发布页
 
+## 更多优质机场推荐
+
+https://vpsworld.org/fanqiang-ranking/
+
+---
+
 [小蜜蜂机场（xmfwww）](https://inva.xmfaff.cc/register?aff=Gsv93MEy)，海外团队运营，全 IEPL 专线机场，原生 IP 节点，全部节点解锁 ChatGPT、Netflix、TikTok 等。包含部分热门小众地域节点。
 
 另有**不限时流量包**，一次性永久 200 GB 流量，永不过期，可以用作备用。
