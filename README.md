@@ -6,7 +6,7 @@ https://vpsworld.org/fanqiang-ranking/
 
 ---
 
-[小蜜蜂机场（xmfwww）](https://inva.xmfaff.cc/register?aff=Gsv93MEy)，海外团队运营，全 IEPL 专线机场，原生 IP 节点，全部节点解锁 ChatGPT、Netflix、TikTok 等。包含部分热门小众地域节点。
+[小蜜蜂机场 xmfwww](https://inva.xmfaff.cc/register?aff=Gsv93MEy)，海外团队运营，全 IEPL 专线机场，原生 IP 节点，全部节点解锁 ChatGPT、Netflix、TikTok 等。包含部分热门小众地域节点。
 
 另有**不限时流量包**，一次性永久 200 GB 流量，永不过期，可以用作备用。
 **常用线路（香港、台湾、日本、美国）为高倍率，使用时请注意。**
@@ -20,15 +20,15 @@ https://vpsworld.org/fanqiang-ranking/
 - 不限制设备数量
 - 支付宝付款
 
-# Rank Star
+## Rank Star
 
 ⭐⭐⭐⭐⭐
 
-# 官方网站
+## 官方网站
 
 [https://w02.xmfwww.pro](https://inva.xmfaff.cc/register?aff=Gsv93MEy)
 
-# 订阅列表
+## 订阅列表
 
 **1 年付 8 折、2 年付 7 折、3 年付 6 折。**
 
@@ -40,16 +40,16 @@ https://vpsworld.org/fanqiang-ranking/
 | 蜂王尊享版 | 500 GB | 1000 Mbps | ￥75.00 |
 | 蜂群无界版 | 1000 GB | 1000 Mbps | ￥140.00 |
 
-# 优惠促销
+## 优惠促销
 
 - 7折优惠码：**xmfxmf7**（有效期至2025年7月31日）
 
-# 售后服务
+## 售后服务
 
-## 工单
+### 工单
 
 [提交工单](https://w02.xmfwww.pro/ticket)
 
-## 在线客服
+### 在线客服
 
 [通过 Crisp 与在线客服联系](https://w02.xmfwww.pro/dashboard)
