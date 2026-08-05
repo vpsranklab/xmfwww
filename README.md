@@ -1,8 +1,18 @@
-# 小蜜蜂机场 - 官方网站发布页
+# 小蜜蜂机场 xmfwww：主打Trojan协议的V2Ray机场，IEPL国际专线，原生IP节点，小流量用户低至8元/月
 
-## 更多优质机场推荐
+## 🔽 你可能还需要
 
-https://vpsworld.org/fanqiang-ranking/
+### 机场排名与推荐
+
+机场大师：[https://jichangdashi.com](https://www.jichangdashi.com/)
+
+### 机场优惠与推荐
+
+VPS World：[https://vpsworld.org/](https://vpsworld.org/)
+
+### 热门机场监测
+
+机场监测：[https://jichang.watch](https://jichang.watch/)
 
 ---
 
@@ -11,7 +21,7 @@ https://vpsworld.org/fanqiang-ranking/
 另有**不限时流量包**，一次性永久 200 GB 流量，永不过期，可以用作备用。
 **常用线路（香港、台湾、日本、美国）为高倍率，使用时请注意。**
 
-- 主要协议：Trojan
+- 主要协议：**VLESS**
 - 小流量用户友好：特惠年付订阅，低至 8 元/月
 - 小众地域支持：马来西亚、泰国、英国、巴西、阿根廷等
 - 流媒体解锁：Netflix、Disney+、HBO、HUGO 等
@@ -20,15 +30,20 @@ https://vpsworld.org/fanqiang-ranking/
 - 不限制设备数量
 - 支付宝付款
 
-## Rank Star
+## 🌐 官方网站
 
-⭐⭐⭐⭐⭐
+[https://xmfwww.pro](https://inva.xmfaff.cc/register?aff=Gsv93MEy)
 
-## 官方网站
+## 🌍 节点地域
 
-[https://w02.xmfwww.pro](https://inva.xmfaff.cc/register?aff=Gsv93MEy)
+- 🇭🇰 香港
+- 🇹🇼 台湾
+- 🇯🇵 日本
+- 🇸🇬 新加坡
+- 🇺🇸 美国
+- 🇹🇭 泰国
 
-## 订阅列表
+## 🧾 订阅列表
 
 **1 年付 8 折、2 年付 7 折、3 年付 6 折。**
 
@@ -40,16 +55,15 @@ https://vpsworld.org/fanqiang-ranking/
 | 蜂王尊享版 | 500 GB | 1000 Mbps | ￥75.00 |
 | 蜂群无界版 | 1000 GB | 1000 Mbps | ￥140.00 |
 
-## 优惠促销
+## 🛠️ 售后服务
 
-- 7折优惠码：**xmfxmf7**（有效期至2025年7月31日）
+| Telegram | ✅ |
+| --- | --- |
+| 工单 | ✅ |
+| 在线客服 | ✅ |
 
-## 售后服务
+## 📝 总结
 
-### 工单
+小蜜蜂机场 xmfwww 兼具 IEPL 专线、原生 IP 节点和不限时流量包，适合低频但长期需要代理服务的用户。它更适合作为备用机场或轻量主力，使用高倍率热门线路时需注意流量消耗。
 
-[提交工单](https://w02.xmfwww.pro/ticket)
-
-### 在线客服
-
-[通过 Crisp 与在线客服联系](https://w02.xmfwww.pro/dashboard)
+👉 官方网站：[https://xmfwww.pro](https://inva.xmfaff.cc/register?aff=Gsv93MEy)
