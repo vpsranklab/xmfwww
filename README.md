@@ -16,7 +16,7 @@ VPS World：[https://vpsworld.org/](https://vpsworld.org/)
 
 ---
 
-[小蜜蜂机场 xmfwww](https://inva.xmfaff.cc/register?aff=Gsv93MEy)，海外团队运营，全 IEPL 专线机场，原生 IP 节点，全部节点解锁 ChatGPT、Netflix、TikTok 等。包含部分热门小众地域节点。
+[小蜜蜂机场 xmfwww](https://invb.xmfaff.cc/register?aff=VyOWt6Yb)，海外团队运营，全 IEPL 专线机场，原生 IP 节点，全部节点解锁 ChatGPT、Netflix、TikTok 等。包含部分热门小众地域节点。
 
 另有**不限时流量包**，一次性永久 200 GB 流量，永不过期，可以用作备用。
 **常用线路（香港、台湾、日本、美国）为高倍率，使用时请注意。**
@@ -32,7 +32,7 @@ VPS World：[https://vpsworld.org/](https://vpsworld.org/)
 
 ## 🌐 官方网站
 
-[https://xmfwww.pro](https://inva.xmfaff.cc/register?aff=Gsv93MEy)
+[https://xmfwww.pro](https://invb.xmfaff.cc/register?aff=VyOWt6Yb)
 
 ## 🌍 节点地域
 
@@ -66,4 +66,4 @@ VPS World：[https://vpsworld.org/](https://vpsworld.org/)
 
 小蜜蜂机场 xmfwww 兼具 IEPL 专线、原生 IP 节点和不限时流量包，适合低频但长期需要代理服务的用户。它更适合作为备用机场或轻量主力，使用高倍率热门线路时需注意流量消耗。
 
-👉 官方网站：[https://xmfwww.pro](https://inva.xmfaff.cc/register?aff=Gsv93MEy)
+👉 官方网站：[https://xmfwww.pro](https://invb.xmfaff.cc/register?aff=VyOWt6Yb)
